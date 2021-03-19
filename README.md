@@ -1,2 +1,2 @@
 ✨ Gray Hat Hacker's Community
-🔥 Trying To Be, United As One 🔥
+🔥 Dreaming To Be, United As One 🔥
