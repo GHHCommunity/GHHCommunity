@@ -3,6 +3,5 @@
 
 <b><h1>Gray Hat Hacker's Community</h1></b>
 <br>
-<b>⚡ We Live As A Mango People ⚡<br>
-🔥 We Dream To Be, United As One🔥<br></b>
-
+<b>⚡ DREAMING TO BE UNITED AS ONE ⚡<br>
+🎭WE ARE MORE THAN TOXIC AND DANGEROUS AS YOU THINK🎭
