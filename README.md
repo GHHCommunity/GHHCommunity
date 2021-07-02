@@ -4,4 +4,4 @@
 <b><h1>Gray Hat Hacker's Community</h1></b>
 <br>
 <b>⚡ DREAMING TO BE UNITED AS ONE ⚡<br>
-🎭WE ARE MORE THAN TOXIC AND DANGEROUS AS YOU THINK🎭
+🎭 WE ARE MORE THAN TOXIC AND DANGEROUS AS YOU THINK 🎭
